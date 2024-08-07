@@ -6,4 +6,4 @@ Cu khôi đã ghé thăm
 Hello
 gia liêm tới chơi
 Niên tới chơi
-hưng 2
+hung 1
