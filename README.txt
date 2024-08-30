@@ -8,4 +8,4 @@ Cu khôi đã ghé thăm
 Hello
 gia liêm tới chơi
 Niên tới chơi
-niên tập push
+niên tập push chơi
